@@ -1,5 +1,5 @@
 
-![Logo](https://i.ibb.co/ZNPg9s3/Untitled-2.png)
+![Logo](https://i.postimg.cc/50NYmP5X/Untitled-2.png)
 
 
 ## About Us
